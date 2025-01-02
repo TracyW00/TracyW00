@@ -1,8 +1,9 @@
  - 杭州大学牲，广东人，会粤语和骑蟑螂
- - 做过很多公益，视障旅游、捐发、书信项目、公益课堂…无障碍接触多年，想去继续当这方向的PM可惜杭州找不到
- - 上善若水，覆舟载艇  
+ - 产品狗
+ - 做过很多公益，视障旅游、捐发、公益课堂…曾担任一个视障旅游项目的负责人。信息无障碍接触多年，需要无障碍调研对象可以找我
+ - 上善若水，覆舟载艇
  *** 
- - A university student in Hangzhou, Cantonese who can speak Cantonese and ride cockroaches
- - Major in Digital Media Technology but work for Data Security to G.
- - Intersted in Accessibility, once a project manager of a visual impaired travel project.
+ - A university student in Hangzhou, a Cantonese that can speak Cantonese and ride cockroaches
+ - Major in Digital Media Technology, work as product manager 2B
+ - Intersted in public welfare and accessibility, once a project manager in a travel project for the visual impaired. If you need some help in accessibility research, you can find me in Zhihu/Douban @tracyw00, or wechat official account @thoughtsstore:) 
  - Be water, my friend.
